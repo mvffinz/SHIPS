@@ -2,3 +2,11 @@
  I feel like i had to do this. PLS INT IF YOU SHIP ANY OF THESE!![5145bf1e](https://github.com/user-attachments/assets/97368c8e-0d97-4329-84b6-a4782321f452)
 
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦
+
+![e02d3227](https://github.com/user-attachments/assets/3ff5b38e-429d-4006-a411-ce823b69d6a1)
+KEY![e02d3227](https://github.com/user-attachments/assets/34e65a1b-a59f-489b-843f-f9ad64a4f36e)
+
+╰┈➤˗ˏˋ ![08fbcf2d](https://github.com/user-attachments/assets/3bc3438d-30c7-426b-bfa8-5693f06dbeb1) - OTP
+
+╰┈➤˗ˏˋ ![ce9ee30c](https://github.com/user-attachments/assets/601cc938-ff1c-4c73-b160-9ee8468bcc1d) - PLATONIC
+
