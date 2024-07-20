@@ -10,7 +10,14 @@ KEY![e02d3227](https://github.com/user-attachments/assets/34e65a1b-a59f-489b-843
 
 ╰┈➤˗ˏˋ ![ce9ee30c](https://github.com/user-attachments/assets/601cc938-ff1c-4c73-b160-9ee8468bcc1d) - PLATONIC
 
+![2c628213](https://github.com/user-attachments/assets/3fc82732-063c-46a9-bd1a-4b3fc92fd854)FANDOM KEY![image](https://github.com/user-attachments/assets/83ee974c-a8f9-478e-b275-970222fb3d96)
+
+╰┈➤˗ˏˋ ![32256253](https://github.com/user-attachments/assets/69dabbb1-fef1-428a-b2ee-b8c683416659) - BFDI
+
+╰┈➤˗ˏˋ ![8620d4e4](https://github.com/user-attachments/assets/0967d91a-29f0-46c4-8403-5f848e6709ec) - homestuck
+
+╰┈➤˗ˏˋ 
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦
 
 
-╰┈➤˗ˏˋ LEAFYPOP!!
+╰┈➤˗ˏˋ LEAFYPOP!! 
