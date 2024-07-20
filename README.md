@@ -10,3 +10,7 @@ KEY![e02d3227](https://github.com/user-attachments/assets/34e65a1b-a59f-489b-843
 
 ╰┈➤˗ˏˋ ![ce9ee30c](https://github.com/user-attachments/assets/601cc938-ff1c-4c73-b160-9ee8468bcc1d) - PLATONIC
 
+✦•┈๑⋅⋯ ⋯⋅๑┈•✦
+
+
+╰┈➤˗ˏˋ LEAFYPOP!!
